@@ -1,3 +1,3 @@
 # ProyectoVision
-Actividades paditzimas con el profe Omar. Tod padrizimo
+Actividades padritzimas con el profe Omar. Todo padrizimo.
 
